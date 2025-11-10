@@ -56,7 +56,7 @@ I’m currently focused on:
 When I’m not coding, I’m probably:  
 - 🏋️‍♂️ Trying to find **motivation for my next workout**  
 - 🍖 Browsing 99 Ranch or Costco for new cooking ideas  
-- 💻 Debugging something at 2 AM — just because I can and I want
+- 💻 Debugging something at 2 AM — just because I can and I want to!
 
 ---
 
